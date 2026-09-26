@@ -17,18 +17,18 @@
 <sub>ḿ̬̏ͤͅo̯̱̊͊͢o̯̱̊͊͢t̲̂̓ͩ̑s̠҉͍͊ͅ ::</sub>
 
   
-<sub>[Angel]()</sub>
-<sub>[Summer]()</sub>
+<sub>[Angel](https://github.com/777xngel)</sub>
+<sub>[Summer](https://github.com/ilyreigen)</sub>
 <sub>[Morg]()</sub>
 
 
 <sub>[Ren]()</sub>
 <sub>[Win]()</sub>
 <sub>[Crester]()</sub>
-<sub>[Aubrey]()</sub>
-
-
 <sub>[Winter]()</sub>
+
+
+<sub>[Aubrey]()</sub>
 <sub>[Moxzii]()</sub>
 <sub>[Yoomi]()</sub>
 
