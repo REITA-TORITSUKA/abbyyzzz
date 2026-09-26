@@ -13,7 +13,8 @@
 <details>
 <summary>⠀𓍯𓂃𓏧</summary>   ⠀ ⠀
 
-<sub>moots ::</sub>
+
+<sub>ḿ̬̏ͤͅo̯̱̊͊͢o̯̱̊͊͢t̲̂̓ͩ̑s̠҉͍͊ͅ ::</sub>
 
   
 <sub>[Angel]()</sub>
@@ -24,7 +25,7 @@
 <sub>[Ren]()</sub>
 <sub>[Win]()</sub>
 <sub>[Crester]()</sub>
-<sub>[Audrey]()</sub>
+<sub>[Aubrey]()</sub>
 
 
 <sub>[Winter]()</sub>
@@ -33,7 +34,7 @@
 
 
 
-<sub>awards ::</sub>
+<sub>ā̤̓̍͘w̦̺̐̐͟ā̤̓̍͘r̴̨̦͕̝ḑ̴̞͛̒s̠҉͍͊ͅ ::</sub>
 
 
 <sub>[pt-hall-of-media]()</sub>
