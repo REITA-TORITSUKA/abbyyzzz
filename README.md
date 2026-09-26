@@ -13,6 +13,8 @@
 <details>
 <summary>⠀𓍯𓂃𓏧</summary>   ⠀ ⠀
 
+<sub>moots ::</sub>
+
   
 <sub>[Angel]()</sub>
 <sub>[Summer]()</sub>
@@ -22,6 +24,7 @@
 <sub>[Ren]()</sub>
 <sub>[Win]()</sub>
 <sub>[Crester]()</sub>
+<sub>[Audrey]()</sub>
 
 
 <sub>[Winter]()</sub>
@@ -30,14 +33,15 @@
 
 
 
+<sub>awards ::</sub>
+
+
+<sub>[pt-hall-of-media]()</sub>
+<sub>[kao-town]()</sub>
 
 
 
-
-
-
-
-
+<img src="https://64.media.tumblr.com/5164870bdd9f2d10b0a0c400d153df69/a6cb5012053649ab-86/s500x750/9d53c81b7e98913a3a24eaa67fbd2459b4bd46b3.pnj" width="30%" align="center"> 
 
 
 
