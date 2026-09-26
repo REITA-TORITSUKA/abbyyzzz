@@ -37,8 +37,8 @@
 <sub>ā̤̓̍͘w̦̺̐̐͟ā̤̓̍͘r̴̨̦͕̝ḑ̴̞͛̒s̠҉͍͊ͅ ::</sub>
 
 
-<sub>[pt-hall-of-media]()</sub>
-<sub>[kao-town]()</sub>
+<sub>[pt-hall-of-media](https://github.com/pt-hall-of-media)</sub>
+<sub>[kaotown](https://github.com/kaotown)</sub>
 
 
 
