@@ -19,18 +19,18 @@
   
 <sub>[Angel](https://github.com/777xngel)</sub>
 <sub>[Summer](https://github.com/ilyreigen)</sub>
-<sub>[Morg]()</sub>
+<sub>[Morg](https://github.com/moorgg)</sub>
 
 
-<sub>[Ren]()</sub>
-<sub>[Win]()</sub>
-<sub>[Crester]()</sub>
-<sub>[Winter]()</sub>
+<sub>[Ren](https://github.com/Rensh1)</sub>
+<sub>[Win](https://github.com/adowintry)</sub>
+<sub>[Crester](https://github.com/poetryCUTIEcresr)</sub>
+<sub>[Winter](https://github.com/mikansfavbandage)</sub>
 
 
-<sub>[Aubrey]()</sub>
-<sub>[Moxzii]()</sub>
-<sub>[Yoomi]()</sub>
+<sub>[Aubrey](https://github.com/HIYOKO-GUMZ)</sub>
+<sub>[Moxzii](https://github.com/Moxzii)</sub>
+<sub>[Yoomi](https://github.com/GOKURAKUGA1)</sub>
 
 
 
